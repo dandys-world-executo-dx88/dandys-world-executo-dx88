@@ -1,4 +1,4 @@
-
+secr Scripts for cut grass - auto-cut and inf-grass is the ultimate solution for cut grass players! Our scripts provide auto-cut and inf-grass, ensuring you dominate every match. No bans, no lags—just pure gaming excellence. Join thousands of satisfied users and elevate your cut grass experience today!
 
 
 ---
